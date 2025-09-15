@@ -1,1 +1,0 @@
-# SituacaoDeAprendizagem02
